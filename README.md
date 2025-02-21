@@ -1,9 +1,9 @@
 # Betasus Hoş Geldin! 🚀 Güncel Giriş Linki ve Bahis Fırsatları Burada! 🎉
 
-# [Betasus Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Betasus Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Betasus Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Betasus Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
+# [Betasus Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Betasus Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Betasus Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Betasus Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
 
 <br>
 
